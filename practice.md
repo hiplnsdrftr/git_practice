@@ -1,3 +1,4 @@
+10-29-16
 
 Martellus Bennett rests Friday, expected to play vs. Bills
 
